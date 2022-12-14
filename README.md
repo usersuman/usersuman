@@ -10,4 +10,3 @@ Here are some ideas with i get started:
 - 📫 How to reach me: ... NO WAY
 - 😄 Pronouns: ... GOOD
 - ⚡ Fun fact: ... fun fact is that, I AM DOOING THIS
--->
