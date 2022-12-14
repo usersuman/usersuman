@@ -9,4 +9,4 @@ Here are some ideas with i get started:
 - 💬 Ask me about ... ANYTHING
 - 📫 How to reach me: ... NO WAY
 - 😄 Pronouns: ... GOOD
-- ⚡ Fun fact: ... fun fact is that, I AM DOOING THIS
+- ⚡ Fun fact: ... fun fact is that, I AM DOING THIS
