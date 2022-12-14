@@ -1,4 +1,4 @@
-### Hi there 👋 i am suman, a student currently learning and experimenting new things whatever i learned..
+### Hi there 👋 i am suman, a student currently learning and experimenting things whatever i learned..
 
 Here are some ideas with i get started:
 
